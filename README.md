@@ -13,7 +13,7 @@
 **Application Devlopment , Web Development, SEO, API Handeling , System Design,  Linux ,Bot Devlopment , Hacking ,Penetrate Testing**
 
 
-**I have mastery in developing and optimizing effective, Linux, Web Development**
+**I have mastery in developing and optimizing effectivs, Linux, Web Development**
 
 
 Wanna be Friends ???
