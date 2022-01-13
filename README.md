@@ -10,7 +10,7 @@
 
 **I like the following stuff**
 
-**Application Devlopment , Web Development, SEO, API Handeling , System Design,  Linux ,Bot Devlopment , Hacking ,Penetrate Testing**
+** Web Development, SEO, API Handeling , System Design,  Linux ,Bot Devlopment **
 
 
 **I have mastery in developing and optimizing effectivs, Linux, Web Development**
