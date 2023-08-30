@@ -1,4 +1,4 @@
-# Hey, I am Roviet ( A teenage guy from India ) 
+# Hey, I am Harsh 
 
 ### - Languages and Tools...
 
@@ -16,4 +16,4 @@
 **I have mastery in developing and optimizing effectivs, Linux, Web Development**
 
 
-Wanna be Friends ???
+Wanna be Friends... ^_^
